@@ -1,1 +1,1 @@
-# Corridas
+# Obrigado por entrar!
